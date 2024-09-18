@@ -6,5 +6,5 @@
 
 Das ist meine Demo Seite
 
-fortnite ist cool
+nah rl is besser
 
